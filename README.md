@@ -47,7 +47,7 @@ Dried banana | 2 T |
 Ground flax seeds | 1 t | Easy to find pre-ground
 Ground chia seeds | 1 t | Hard to find pre-ground, a blender works
 Ground roasted sunflower seeds | 10 t | Hard to find pre-ground, a blender works
-Ceylon cinnamon | 3/4 t |
+Ceylon cinnamon | 3/4 t | Ceylon is important -- eating this much regular cinnamon every day is not recommended due to high coumarin content
 Allspice | 1/8 t |
 Ground cloves | 1/16 t |
 Ground cardamom | 1/16 t | 
